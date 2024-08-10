@@ -18,4 +18,4 @@
 
                     
 
-         —     carrd coming soon, no motivation to make one atm.
+         —     https://nasuii.carrd.co
